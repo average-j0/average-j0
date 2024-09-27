@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @average-j0
+- 👀 I’m just learning how to program
